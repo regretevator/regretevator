@@ -1,1 +1,1 @@
-<p align="center">no cool header image for now. anyway feel free to call me samara. im 19 and use xe/he</p>
+<p align="center">no cool header image for now. hateclaiming the url since i dont trust any of you people to be responsible with it</p>
